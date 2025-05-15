@@ -34,4 +34,4 @@
 
 总而言之，卢旺达的eSIM卡不仅仅是一项简单的通信工具，更是推动该国乃至整个非洲地区迈向信息化时代的重要里程碑。它不仅改变了人们的日常生活方式，更为经济发展注入了强劲动力。如果你正计划前往这片神奇的土地，不妨试试看这款便捷高效的eSIM卡吧！相信它会给你留下深刻的印象。
 
-[TG💪+ @jx0703 ![Image](https://github.com/user-attachments/assets/dbca1d08-cadb-493c-b0ec-ad6f7a83f270)]
+[[TG💪+ @esim1088](https://t.me/s/esim1088) ![Image](https://i.postimg.cc/4NQfJmqS/Snipaste-2025-05-13-00-14-12.png)]

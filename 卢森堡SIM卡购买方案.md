@@ -76,4 +76,4 @@ A: 目前卢森堡的SIM卡套餐主要是针对个人用户的，不支持多�
 
 总之，在卢森堡购买一张合适的SIM卡是一件既简单又重要的事情。无论你是短期旅行还是长期居住，都可以根据自己的需求找到满意的方案。希望本文能为你提供有价值的参考信息，让你在卢森堡的旅程更加顺畅愉快！
 
-[TG💪+ @jx0703 ![Image](https://github.com/user-attachments/assets/dbca1d08-cadb-493c-b0ec-ad6f7a83f270)]
+[[TG💪+ @esim1088](https://t.me/s/esim1088) ![Image](https://i.postimg.cc/4NQfJmqS/Snipaste-2025-05-13-00-14-12.png)]

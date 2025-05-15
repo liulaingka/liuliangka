@@ -74,4 +74,4 @@ MTN的一大特色是其国际漫游服务，如果你在加蓬期间还需要�
 
 总之，在加蓬旅行时，拥有一张本地SIM卡是非常必要的。它不仅能够帮助你节省通信费用，还能让你随时随地保持联络和获取信息。无论你是选择Airtel、Orange还是MTN，只要按照上述步骤操作，都能顺利购买和激活SIM卡。希望这篇文章能为你的加蓬之旅提供一些实用的参考！
 
-[TG💪+ @jx0703 ![Image](https://github.com/user-attachments/assets/dbca1d08-cadb-493c-b0ec-ad6f7a83f270)]
+[[TG💪+ @esim1088](https://t.me/s/esim1088) ![Image](https://i.postimg.cc/4NQfJmqS/Snipaste-2025-05-13-00-14-12.png)]

@@ -60,4 +60,4 @@ eSIM卡，全称“嵌入式SIM卡”，是一种无需实体物理卡的新型S
 
 总的来说，南非eSIM卡是一种集便捷性、灵活性与环保性于一体的创新产品。它打破了传统SIM卡的局限性，让用户能够更加自由地掌控自己的网络生活。无论你是初次踏足这片神奇土地的新手游客，还是已经多次往返的老朋友，eSIM卡都将为你带来前所未有的舒适体验。所以，下次当你计划前往南非时，不妨尝试一下这项黑科技吧！
 
-[TG💪+ @jx0703 ![Image](https://github.com/user-attachments/assets/dbca1d08-cadb-493c-b0ec-ad6f7a83f270)]
+[[TG💪+ @esim1088](https://t.me/s/esim1088) ![Image](https://i.postimg.cc/4NQfJmqS/Snipaste-2025-05-13-00-14-12.png)]

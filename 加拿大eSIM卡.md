@@ -50,4 +50,4 @@ eSIM卡，全称Embedded Subscriber Identity Module，即嵌入式用户身份�
 
 综上所述，加拿大eSIM卡凭借其独特的优势已经成为越来越多旅行者和居民的理想之选。它不仅简化了跨境通信流程，还极大提升了用户体验感。不过值得注意的是，在享受便利的同时也要记得定期检查账户余额以防欠费停机哦！希望本文能为大家提供更多有用的信息，并祝愿每位朋友都能够顺利开启属于自己的精彩旅程~
 
-[TG💪+ @jx0703 ![Image](https://github.com/user-attachments/assets/dbca1d08-cadb-493c-b0ec-ad6f7a83f270)]
+[[TG💪+ @esim1088](https://t.me/s/esim1088) ![Image](https://i.postimg.cc/4NQfJmqS/Snipaste-2025-05-13-00-14-12.png)]

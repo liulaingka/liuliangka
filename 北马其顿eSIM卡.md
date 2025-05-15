@@ -44,4 +44,4 @@
 
 综上所述，北马其顿eSIM卡无疑成为了现代旅行者们最理想的伴侣之一。它不仅解决了传统SIM卡带来的诸多不便之处，还凭借自身独特的优势为用户带来了前所未有的便利与实惠。所以如果你正打算去探索这个美丽国度的话，不妨试试看吧～相信它定会让你的旅程更加精彩难忘！
 
-[TG💪+ @jx0703 ![Image](https://github.com/user-attachments/assets/dbca1d08-cadb-493c-b0ec-ad6f7a83f270)]
+[[TG💪+ @esim1088](https://t.me/s/esim1088) ![Image](https://i.postimg.cc/4NQfJmqS/Snipaste-2025-05-13-00-14-12.png)]

@@ -97,4 +97,4 @@
 
 总的来说，在卡塔尔购买SIM卡并不难，关键是选对运营商和套餐。无论你是喜欢网上冲浪，还是更注重电话沟通，总能找到一款符合自己需求的产品。希望这篇指南能帮到即将前往卡塔尔的朋友，祝大家玩得开心，通讯无忧！
 
-[TG💪+ @jx0703 ![Image](https://github.com/user-attachments/assets/dbca1d08-cadb-493c-b0ec-ad6f7a83f270)]
+[[TG💪+ @esim1088](https://t.me/s/esim1088) ![Image](https://i.postimg.cc/4NQfJmqS/Snipaste-2025-05-13-00-14-12.png)]

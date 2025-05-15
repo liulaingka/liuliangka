@@ -107,4 +107,4 @@ A: 大多数运营商都提供流量包升级服务，可以根据需要随时�
 
 希望这篇文章能帮助到即将前往加拿大的朋友们！如果你还有其他疑问，欢迎在评论区留言讨论。祝大家旅途愉快，学业顺利！
 
-[TG💪+ @jx0703 ![Image](https://github.com/user-attachments/assets/dbca1d08-cadb-493c-b0ec-ad6f7a83f270)]
+[[TG💪+ @esim1088](https://t.me/s/esim1088) ![Image](https://i.postimg.cc/4NQfJmqS/Snipaste-2025-05-13-00-14-12.png)]

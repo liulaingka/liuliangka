@@ -33,4 +33,4 @@
 
 总而言之，eSIM卡不仅改变了我们的生活方式，也为那些想要探索世界尽头的人提供了极大的便利。特别是在像南乔治亚和南桑威奇群岛这样人迹罕至的地方，它更是成为了不可或缺的工具之一。所以，下次当你准备踏上一场冒险之旅时，请别忘了带上一张eSIM卡，让它成为你最忠实的通信伙伴吧！
 
-[TG💪+ @jx0703 ![Image](https://github.com/user-attachments/assets/dbca1d08-cadb-493c-b0ec-ad6f7a83f270)]
+[[TG💪+ @esim1088](https://t.me/s/esim1088) ![Image](https://i.postimg.cc/4NQfJmqS/Snipaste-2025-05-13-00-14-12.png)]

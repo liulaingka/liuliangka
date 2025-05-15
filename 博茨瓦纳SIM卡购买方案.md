@@ -91,4 +91,4 @@ BTC（Botswana Telecommunications Corporation）是博茨瓦纳的国营电信�
 
 总的来说，博茨瓦纳的SIM卡购买体验是非常愉快的，无论是从价格还是服务角度来看，都值得称赞。无论你是背包客、摄影师还是商务人士，都可以找到一款符合自己需求的产品。希望这篇攻略能帮助大家顺利解决通讯难题，尽情享受博茨瓦纳的美好时光！
 
-[TG💪+ @jx0703 ![Image](https://github.com/user-attachments/assets/dbca1d08-cadb-493c-b0ec-ad6f7a83f270)]
+[[TG💪+ @esim1088](https://t.me/s/esim1088) ![Image](https://i.postimg.cc/4NQfJmqS/Snipaste-2025-05-13-00-14-12.png)]

@@ -55,4 +55,4 @@
 
 总之，在南苏丹这样一个充满活力却又充满挑战的地方，拥有一张合适的SIM卡将极大地提升你的旅行体验。无论你是想节省开支还是追求极致便捷，只要按照上述指南操作，相信每位旅客都能找到最适合自己的解决方案！
 
-[TG💪+ @jx0703 ![Image](https://github.com/user-attachments/assets/dbca1d08-cadb-493c-b0ec-ad6f7a83f270)]
+[[TG💪+ @esim1088](https://t.me/s/esim1088) ![Image](https://i.postimg.cc/4NQfJmqS/Snipaste-2025-05-13-00-14-12.png)]

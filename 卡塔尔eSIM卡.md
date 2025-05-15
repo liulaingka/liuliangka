@@ -47,4 +47,4 @@ eSIM卡，全称“嵌入式SIM卡”，是一种无需物理插入的虚拟SIM�
 
 总而言之，卡塔尔eSIM卡作为一种创新性的旅行工具，正逐步改变人们对于跨境通信的传统认知。它不仅简化了流程，降低了成本，还极大地提升了用户体验。如果你即将踏上这片神奇的土地，请不要忘记带上一张属于自己的卡塔尔eSIM卡，让它成为你探索未知世界的得力助手吧！
 
-[TG💪+ @jx0703 ![Image](https://github.com/user-attachments/assets/dbca1d08-cadb-493c-b0ec-ad6f7a83f270)]
+[[TG💪+ @esim1088](https://t.me/s/esim1088) ![Image](https://i.postimg.cc/4NQfJmqS/Snipaste-2025-05-13-00-14-12.png)]

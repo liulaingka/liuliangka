@@ -69,4 +69,4 @@ eSIM卡，全称“嵌入式SIM卡”，是一种无需物理插入的传统SIM�
 
 总而言之，卢森堡的eSIM卡正在改变我们的通信方式，为未来开辟了一条全新的道路。如果你还没有体验过这项技术的魅力，不妨试试看吧！相信它会给你的生活带来意想不到的变化。
 
-[TG💪+ @jx0703 ![Image](https://github.com/user-attachments/assets/dbca1d08-cadb-493c-b0ec-ad6f7a83f270)]
+[[TG💪+ @esim1088](https://t.me/s/esim1088) ![Image](https://i.postimg.cc/4NQfJmqS/Snipaste-2025-05-13-00-14-12.png)]

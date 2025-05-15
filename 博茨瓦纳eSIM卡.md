@@ -23,4 +23,4 @@
 
 总之，博茨瓦纳的eSIM卡市场正处于快速发展阶段，它不仅代表了未来通信技术的方向，也为广大用户提供了前所未有的便利体验。如果你还没有尝试过这项服务，不妨考虑给自己换一张eSIM卡试试看吧！相信它会让你的生活变得更加丰富多彩。
 
-[TG💪+ @jx0703 ![Image](https://github.com/user-attachments/assets/dbca1d08-cadb-493c-b0ec-ad6f7a83f270)]
+[[TG💪+ @esim1088](https://t.me/s/esim1088) ![Image](https://i.postimg.cc/4NQfJmqS/Snipaste-2025-05-13-00-14-12.png)]

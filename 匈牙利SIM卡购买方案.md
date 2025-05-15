@@ -74,4 +74,4 @@ Drei的短期流量包也非常划算，比如300MB流量仅需50福林。
 
 总之，在匈牙利购买SIM卡是一件既简单又实惠的事情。无论你是短期游客还是长期居民，都能找到符合自己需求的解决方案。希望这篇文章能帮助你在匈牙利的旅程中畅享网络带来的便利！
 
-[TG💪+ @jx0703 ![Image](https://github.com/user-attachments/assets/dbca1d08-cadb-493c-b0ec-ad6f7a83f270)]
+[[TG💪+ @esim1088](https://t.me/s/esim1088) ![Image](https://i.postimg.cc/4NQfJmqS/Snipaste-2025-05-13-00-14-12.png)]

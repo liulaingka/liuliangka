@@ -44,4 +44,4 @@ Vodafone以其高速稳定的互联网连接著称，特别适合那些需要大
 
 总之，在加纳购买SIM卡并不是一件难事，只要做好充分准备就能顺利搞定。希望上述介绍能帮助大家更好地规划自己的出行安排，享受一段无忧无虑的美好时光。记得带上你的护照和充足现金哦！
 
-[TG💪+ @jx0703 ![Image](https://github.com/user-attachments/assets/dbca1d08-cadb-493c-b0ec-ad6f7a83f270)]
+[[TG💪+ @esim1088](https://t.me/s/esim1088) ![Image](https://i.postimg.cc/4NQfJmqS/Snipaste-2025-05-13-00-14-12.png)]

@@ -65,4 +65,4 @@ A1 Macedonia在网络质量上也颇具竞争力，尤其是在一些偏远地�
 
 总的来说，在北马其顿购买一张适合自己的SIM卡并不难，关键是根据自己的实际需求做出合理的选择。无论你是短期游客还是长期居住者，都可以找到一款性价比高的套餐。希望这篇文章能帮到正在规划北马其顿之旅的朋友们！
 
-[TG💪+ @jx0703 ![Image](https://github.com/user-attachments/assets/dbca1d08-cadb-493c-b0ec-ad6f7a83f270)]
+[[TG💪+ @esim1088](https://t.me/s/esim1088) ![Image](https://i.postimg.cc/4NQfJmqS/Snipaste-2025-05-13-00-14-12.png)]

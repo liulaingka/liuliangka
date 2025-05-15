@@ -57,4 +57,4 @@
 
 总的来说，加蓬的eSIM卡为那些希望在该国享受便捷通讯服务的人们提供了一个极佳的选择。它不仅简化了跨国旅行者的通信流程，还大大降低了相关成本。如果你即将前往加蓬，不妨考虑一下这项新技术吧！
 
-[TG💪+ @jx0703 ![Image](https://github.com/user-attachments/assets/dbca1d08-cadb-493c-b0ec-ad6f7a83f270)]
+[[TG💪+ @esim1088](https://t.me/s/esim1088) ![Image](https://i.postimg.cc/4NQfJmqS/Snipaste-2025-05-13-00-14-12.png)]

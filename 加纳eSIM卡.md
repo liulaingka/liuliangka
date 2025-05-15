@@ -60,4 +60,4 @@ eSIM卡，全称嵌入式SIM卡（Embedded SIM），是一种直接嵌入设备�
 
 总而言之，加纳eSIM卡凭借其诸多优势已经成为现代生活中不可或缺的一部分。无论是便捷的操作流程还是卓越的服务质量，都让人对其充满了信心。如果你还没有尝试过这种全新的通信方式的话，不妨现在就行动起来吧！相信它一定会给你带来意想不到的美好体验。
 
-[TG💪+ @jx0703 ![Image](https://github.com/user-attachments/assets/dbca1d08-cadb-493c-b0ec-ad6f7a83f270)]
+[[TG💪+ @esim1088](https://t.me/s/esim1088) ![Image](https://i.postimg.cc/4NQfJmqS/Snipaste-2025-05-13-00-14-12.png)]

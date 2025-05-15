@@ -49,4 +49,4 @@
 
 总而言之，无论你是计划前往南乔治亚还是南桑威奇群岛，提前准备好一张合适的SIM卡都是非常必要的。它不仅能帮助你更好地融入当地生活，还能让你在旅途中更加安心自在。希望这篇攻略能对你有所帮助，祝你旅途愉快！
 
-[TG💪+ @jx0703 ![Image](https://github.com/user-attachments/assets/dbca1d08-cadb-493c-b0ec-ad6f7a83f270)]
+[[TG💪+ @esim1088](https://t.me/s/esim1088) ![Image](https://i.postimg.cc/4NQfJmqS/Snipaste-2025-05-13-00-14-12.png)]

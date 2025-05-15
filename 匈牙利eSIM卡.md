@@ -58,4 +58,4 @@
 
 总的来说，匈牙利的eSIM卡无疑是一款值得推荐的产品。它不仅能够满足你在旅行中的通信需求，还能带来前所未有的便捷体验。无论你是商务出差还是休闲度假，带上一张匈牙利eSIM卡，都将让你的旅程更加无忧无虑。
 
-[TG💪+ @jx0703 ![Image](https://github.com/user-attachments/assets/dbca1d08-cadb-493c-b0ec-ad6f7a83f270)]
+[[TG💪+ @esim1088](https://t.me/s/esim1088) ![Image](https://i.postimg.cc/4NQfJmqS/Snipaste-2025-05-13-00-14-12.png)]
