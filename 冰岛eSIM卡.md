@@ -42,4 +42,4 @@
 
 总的来说，冰岛eSIM卡不仅仅是一张普通的通讯工具，更是一种让旅行变得更加轻松愉快的方式。它能够帮助我们更好地融入当地生活，同时也能保障旅途中的安全与便利。如果你正准备前往这个北欧仙境，请务必考虑带上一张冰岛eSIM卡吧！
 
-[TG💪+ @jx0703 ![Image](https://github.com/user-attachments/assets/dbca1d08-cadb-493c-b0ec-ad6f7a83f270)]
+[[TG💪+ @esim1088](https://t.me/s/esim1088) ![Image](https://i.postimg.cc/4NQfJmqS/Snipaste-2025-05-13-00-14-12.png)]

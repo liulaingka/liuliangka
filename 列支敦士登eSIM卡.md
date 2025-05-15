@@ -76,4 +76,4 @@
 
 所以，如果你还没有尝试过eSIM卡，不妨考虑一下列支敦士登这款产品吧！它或许会成为你下一次旅程中的得力助手。
 
-[TG💪+ @jx0703 ![Image](https://github.com/user-attachments/assets/dbca1d08-cadb-493c-b0ec-ad6f7a83f270)]
+[[TG💪+ @esim1088](https://t.me/s/esim1088) ![Image](https://i.postimg.cc/4NQfJmqS/Snipaste-2025-05-13-00-14-12.png)]

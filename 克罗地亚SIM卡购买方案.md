@@ -74,4 +74,4 @@
 
 总的来说，在克罗地亚购买一张合适的SIM卡不仅能帮助你更好地融入当地生活，还能为你的旅行增添许多乐趣。无论你是短期游客还是长期居住者，都可以根据自身需求找到满意的解决方案。希望本文能为你提供有价值的参考信息，祝你在克罗地亚度过一段美好的时光！
 
-[TG💪+ @jx0703 ![Image](https://github.com/user-attachments/assets/dbca1d08-cadb-493c-b0ec-ad6f7a83f270)]
+[[TG💪+ @esim1088](https://t.me/s/esim1088) ![Image](https://i.postimg.cc/4NQfJmqS/Snipaste-2025-05-13-00-14-12.png)]

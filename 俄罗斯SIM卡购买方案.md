@@ -53,4 +53,4 @@ Yota是一家专注于移动互联网服务的运营商，它的特点是专注�
 
 综上所述，选择一张合适自己的俄罗斯SIM卡并非难事，只要结合个人实际情况做好充分准备即可。希望上述内容对你有所帮助，在接下来的日子里能够顺利地享受属于你的俄罗斯之旅吧！
 
-[TG💪+ @jx0703 ![Image](https://github.com/user-attachments/assets/dbca1d08-cadb-493c-b0ec-ad6f7a83f270)]
+[[TG💪+ @esim1088](https://t.me/s/esim1088) ![Image](https://i.postimg.cc/4NQfJmqS/Snipaste-2025-05-13-00-14-12.png)]

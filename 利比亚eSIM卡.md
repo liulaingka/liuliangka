@@ -54,4 +54,4 @@
 
 综上所述，利比亚eSIM卡作为一种新兴事物正逐渐走进人们的视野之中。它以其独特的优势改变了传统通信模式，并为用户带来了前所未有的便捷体验。当然，在享受这些便利的同时也要注意合理安排预算并遵守当地法律法规哦！
 
-[TG💪+ @jx0703 ![Image](https://github.com/user-attachments/assets/dbca1d08-cadb-493c-b0ec-ad6f7a83f270)]
+[[TG💪+ @esim1088](https://t.me/s/esim1088) ![Image](https://i.postimg.cc/4NQfJmqS/Snipaste-2025-05-13-00-14-12.png)]

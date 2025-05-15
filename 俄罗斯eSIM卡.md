@@ -37,4 +37,4 @@
 
 总而言之，俄罗斯eSIM卡凭借其独特的优势正在成为越来越多旅客及居民首选的通讯解决方案之一。它不仅简化了出行流程，还有效降低了通信费用负担，真正实现了“一部手机走天下”的梦想。所以如果你正考虑去俄罗斯旅行或定居的话，不妨提前考虑一下是否需要为自己配备这么一张神奇的小卡片吧！
 
-[TG💪+ @jx0703 ![Image](https://github.com/user-attachments/assets/dbca1d08-cadb-493c-b0ec-ad6f7a83f270)]
+[[TG💪+ @esim1088](https://t.me/s/esim1088) ![Image](https://i.postimg.cc/4NQfJmqS/Snipaste-2025-05-13-00-14-12.png)]

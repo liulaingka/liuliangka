@@ -88,4 +88,4 @@ Nova是冰岛第三大运营商，主打性价比高。它的入门级套餐价�
 
 冰岛的美景让人流连忘返，而一张合适的SIM卡则是保障你旅途愉快的重要工具。无论你是选择Siminn、Vodafone Iceland还是Nova，都可以根据自己的需求找到最适合自己的方案。提前规划、合理选择，相信你一定能享受到冰岛带来的惊喜与便利！
 
-[TG💪+ @jx0703 ![Image](https://github.com/user-attachments/assets/dbca1d08-cadb-493c-b0ec-ad6f7a83f270)]
+[[TG💪+ @esim1088](https://t.me/s/esim1088) ![Image](https://i.postimg.cc/4NQfJmqS/Snipaste-2025-05-13-00-14-12.png)]

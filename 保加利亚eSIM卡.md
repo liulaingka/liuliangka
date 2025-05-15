@@ -55,4 +55,4 @@
 
 总的来说，保加利亚的eSIM卡为游客和居民提供了极大的便利性和经济实惠性。无论你是短暂停留还是长期居住，在这个美丽而又充满活力的国度里，拥有一张合适的eSIM卡都将大大丰富你的旅程体验。希望这篇文章能帮助大家更加深入地理解eSIM卡的魅力所在，并鼓励更多人尝试这一创新科技带来的新变化！
 
-[TG💪+ @jx0703 ![Image](https://github.com/user-attachments/assets/dbca1d08-cadb-493c-b0ec-ad6f7a83f270)]
+[[TG💪+ @esim1088](https://t.me/s/esim1088) ![Image](https://i.postimg.cc/4NQfJmqS/Snipaste-2025-05-13-00-14-12.png)]

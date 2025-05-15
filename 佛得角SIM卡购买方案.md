@@ -55,4 +55,4 @@ TACV 是一家以航空业为主的公司，但也涉足电信领域。尽管其
 
 综上所述，无论你是追求极致性价比还是注重稳定性能，佛得角都能为你提供满意答案。只要提前做好功课，合理规划行程安排，相信每位访客都可以享受到这片美丽土地带来的无限乐趣！最后提醒大家一句，出门在外安全第一，记得妥善保管好个人信息及财务物品哦～
 
-[TG💪+ @jx0703 ![Image](https://github.com/user-attachments/assets/dbca1d08-cadb-493c-b0ec-ad6f7a83f270)]
+[[TG💪+ @esim1088](https://t.me/s/esim1088) ![Image](https://i.postimg.cc/4NQfJmqS/Snipaste-2025-05-13-00-14-12.png)]

@@ -58,4 +58,4 @@ eSIM卡的优势显而易见。首先，它让设备更加轻薄，为制造商�
 
 当然，任何新技术都有其局限性。面对不断变化的世界，我们需要始终保持开放的心态去接纳新鲜事物，并学会合理利用它们来提升生活质量。相信随着时间推移，eSIM卡将在刚果这片神奇的土地上绽放出更加耀眼的光芒！
 
-[TG💪+ @jx0703 ![Image](https://github.com/user-attachments/assets/dbca1d08-cadb-493c-b0ec-ad6f7a83f270)]
+[[TG💪+ @esim1088](https://t.me/s/esim1088) ![Image](https://i.postimg.cc/4NQfJmqS/Snipaste-2025-05-13-00-14-12.png)]

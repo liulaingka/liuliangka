@@ -49,4 +49,4 @@
 
 总而言之，利比里亚eSIM卡正以其独特的优势改变着这片土地上的通信格局。无论是普通消费者还是企业客户都可以从中受益匪浅。未来随着更多创新功能被开发出来，相信这项技术将会迎来更加广阔的发展前景。
 
-[TG💪+ @jx0703 ![Image](https://github.com/user-attachments/assets/dbca1d08-cadb-493c-b0ec-ad6f7a83f270)]
+[[TG💪+ @esim1088](https://t.me/s/esim1088) ![Image](https://i.postimg.cc/4NQfJmqS/Snipaste-2025-05-13-00-14-12.png)]

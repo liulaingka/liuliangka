@@ -75,4 +75,4 @@ A: 三大运营商都支持国际漫游功能，但费用较高。如果你只�
 
 总的来说，在利比里亚购买一张合适的SIM卡并不难，关键是要提前做好功课，明确自己的需求。无论你是长期居住还是短期访问，合理的通讯规划都能让旅途更加愉快。希望本文能够帮助到即将前往利比里亚的朋友，祝大家一路顺风！
 
-[TG💪+ @jx0703 ![Image](https://github.com/user-attachments/assets/dbca1d08-cadb-493c-b0ec-ad6f7a83f270)]
+[[TG💪+ @esim1088](https://t.me/s/esim1088) ![Image](https://i.postimg.cc/4NQfJmqS/Snipaste-2025-05-13-00-14-12.png)]

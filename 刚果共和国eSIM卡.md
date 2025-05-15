@@ -20,4 +20,4 @@
 
 总之，eSIM卡已经成为现代生活中不可或缺的一部分，并将在未来扮演越来越重要的角色。对于刚果共和国这样一个充满机遇与活力的国家来说，拥抱这项创新技术无疑是一条通往更加美好未来的康庄大道。无论你是普通消费者、创业者还是政府部门，都可以从中找到属于自己的价值所在。所以，请不要犹豫，快来尝试一下吧！让eSIM卡帮你开启一段全新的旅程，感受科技赋予我们的无限可能！
 
-[TG💪+ @jx0703 ![Image](https://github.com/user-attachments/assets/dbca1d08-cadb-493c-b0ec-ad6f7a83f270)]
+[[TG💪+ @esim1088](https://t.me/s/esim1088) ![Image](https://i.postimg.cc/4NQfJmqS/Snipaste-2025-05-13-00-14-12.png)]

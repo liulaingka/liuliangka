@@ -52,4 +52,4 @@
 
 综上所述，几内亚eSIM卡凭借其便捷性、经济性和环保特性，在现代通信领域占据了一席之地。它不仅改变了人们的出行方式，也为跨文化交流搭建起了桥梁。如果你也想体验这种全新的生活方式，不妨尝试一下吧！相信这款产品会给你带来意想不到的惊喜。
 
-[TG💪+ @jx0703 ![Image](https://github.com/user-attachments/assets/dbca1d08-cadb-493c-b0ec-ad6f7a83f270)]
+[[TG💪+ @esim1088](https://t.me/s/esim1088) ![Image](https://i.postimg.cc/4NQfJmqS/Snipaste-2025-05-13-00-14-12.png)]

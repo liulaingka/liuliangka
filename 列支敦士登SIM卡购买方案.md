@@ -44,4 +44,4 @@
 
 综上所述，无论是为了方便出行还是满足社交娱乐需求，在列支敦士登购买一张本地SIM卡都是个绝佳主意。它不仅能让你随时随地保持联络畅通无阻，还能够在一定程度上降低旅行成本。希望这篇文章能够为你提供有价值的参考意见，祝大家旅途愉快！
 
-[TG💪+ @jx0703 ![Image](https://github.com/user-attachments/assets/dbca1d08-cadb-493c-b0ec-ad6f7a83f270)]
+[[TG💪+ @esim1088](https://t.me/s/esim1088) ![Image](https://i.postimg.cc/4NQfJmqS/Snipaste-2025-05-13-00-14-12.png)]

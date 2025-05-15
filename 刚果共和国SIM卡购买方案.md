@@ -59,4 +59,4 @@ MTN Congo 是另一家在刚果运营多年的知名运营商，其服务质量�
 ## 总结
 总的来说，在刚果购买SIM卡并不是一件难事，只要提前做好功课并遵循上述指南，你就能轻松搞定通讯问题。无论是选择Airtel还是MTN Congo，这两种运营商都能满足大多数人的日常通讯需求。希望这篇文章能帮助你在刚果共和国度过一段愉快而顺畅的旅程！
 
-[TG💪+ @jx0703 ![Image](https://github.com/user-attachments/assets/dbca1d08-cadb-493c-b0ec-ad6f7a83f270)]
+[[TG💪+ @esim1088](https://t.me/s/esim1088) ![Image](https://i.postimg.cc/4NQfJmqS/Snipaste-2025-05-13-00-14-12.png)]

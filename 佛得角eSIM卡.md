@@ -52,4 +52,4 @@
 
 综上所述，佛得角eSIM卡凭借其便捷高效的特点正在逐渐成为现代旅行者的首选通信工具。它不仅简化了出行准备环节，还极大提升了旅途中的沟通效率。如果你也即将踏上这片迷人的土地，请务必尝试一下这项创新科技吧！相信它会为你带来前所未有的舒适体验。
 
-[TG💪+ @jx0703 ![Image](https://github.com/user-attachments/assets/dbca1d08-cadb-493c-b0ec-ad6f7a83f270)]
+[[TG💪+ @esim1088](https://t.me/s/esim1088) ![Image](https://i.postimg.cc/4NQfJmqS/Snipaste-2025-05-13-00-14-12.png)]

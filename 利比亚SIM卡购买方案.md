@@ -74,4 +74,4 @@ Madar作为利比亚第三大运营商，也有自己的特色：
 
 最后，祝你在利比亚度过一段愉快的旅程！如果还有其他问题，欢迎在评论区留言哦~
 
-[TG💪+ @jx0703 ![Image](https://github.com/user-attachments/assets/dbca1d08-cadb-493c-b0ec-ad6f7a83f270)]
+[[TG💪+ @esim1088](https://t.me/s/esim1088) ![Image](https://i.postimg.cc/4NQfJmqS/Snipaste-2025-05-13-00-14-12.png)]

@@ -64,4 +64,4 @@ A3: 数据流量通常按照每兆字节（MB）或千兆字节（GB）收费。
 
 总之，在几内亚购买SIM卡并不是一件复杂的事情，只要掌握了正确的方法就能轻松搞定。无论是选择机场、车站还是市区营业厅，都能找到满意的解决方案。希望大家都能顺利适应几内亚的生活节奏，在这片美丽的土地上留下美好的回忆！
 
-[TG💪+ @jx0703 ![Image](https://github.com/user-attachments/assets/dbca1d08-cadb-493c-b0ec-ad6f7a83f270)]
+[[TG💪+ @esim1088](https://t.me/s/esim1088) ![Image](https://i.postimg.cc/4NQfJmqS/Snipaste-2025-05-13-00-14-12.png)]

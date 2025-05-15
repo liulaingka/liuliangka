@@ -99,4 +99,4 @@
 
 无论你是匆匆过客还是打算长期驻留，一张合适的保加利亚SIM卡都能让您的旅途变得更加丰富多彩。希望这篇攻略能帮助您快速找到满意的解决方案！如果您还有其他疑问，欢迎随时留言讨论哦～
 
-[TG💪+ @jx0703 ![Image](https://github.com/user-attachments/assets/dbca1d08-cadb-493c-b0ec-ad6f7a83f270)]
+[[TG💪+ @esim1088](https://t.me/s/esim1088) ![Image](https://i.postimg.cc/4NQfJmqS/Snipaste-2025-05-13-00-14-12.png)]

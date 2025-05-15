@@ -49,4 +49,4 @@
 
 综上所述，克罗地亚eSIM卡以其独特的优势正在改变人们的旅行方式。它不仅简化了购卡流程，提升了用户体验，还促进了绿色环保事业的发展。对于即将前往这片神奇土地探索未知奥秘的朋友而言，不妨试试这款创新科技产品吧！相信它定会让你的旅程更加精彩难忘。
 
-[TG💪+ @jx0703 ![Image](https://github.com/user-attachments/assets/dbca1d08-cadb-493c-b0ec-ad6f7a83f270)]
+[[TG💪+ @esim1088](https://t.me/s/esim1088) ![Image](https://i.postimg.cc/4NQfJmqS/Snipaste-2025-05-13-00-14-12.png)]
