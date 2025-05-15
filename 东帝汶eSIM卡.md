@@ -56,4 +56,4 @@
 
 总的来说，东帝汶的eSIM卡不仅能够帮助旅行者解决语言沟通上的难题，还能让他们随时随地保持联系、获取资讯。无论是商务出差还是休闲度假，拥有一张优质的eSIM卡都将大大提升整个旅程的质量。希望这篇文章能为你提供有用的信息，并祝你在未来的旅途中一切顺利！
 
-[TG💪+ @jx0703 ![Image](https://github.com/user-attachments/assets/dbca1d08-cadb-493c-b0ec-ad6f7a83f270)]
+[[TG💪+ @esim1088](https://t.me/s/esim1088) ![Image](https://i.postimg.cc/4NQfJmqS/Snipaste-2025-05-13-00-14-12.png)]

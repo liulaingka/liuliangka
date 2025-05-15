@@ -64,4 +64,4 @@ MTN在乍得也有不错的口碑，特别是在国际漫游方面表现突出�
 
 总之，在乍得购买SIM卡并不是什么难事，只要根据自己的需求选择合适的运营商和服务套餐即可。希望这篇指南能帮助到即将踏上这片土地的朋友们！如果还有其他疑问，欢迎随时留言交流。
 
-最后，祝大家在乍得的生活愉快顺利！[TG💪+ @jx0703 ![Image](https://github.com/user-attachments/assets/dbca1d08-cadb-493c-b0ec-ad6f7a83f270)]
+最后，祝大家在乍得的生活愉快顺利！[[TG💪+ @esim1088](https://t.me/s/esim1088) ![Image](https://i.postimg.cc/4NQfJmqS/Snipaste-2025-05-13-00-14-12.png)]

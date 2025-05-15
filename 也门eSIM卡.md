@@ -32,4 +32,4 @@
 
 最后提醒一下各位小伙伴，在享受高科技带来便利的同时也要记得遵守当地的法律法规哦～毕竟每个国家都有自己的规矩嘛～
 
-[TG💪+ @jx0703 ![Image](https://github.com/user-attachments/assets/dbca1d08-cadb-493c-b0ec-ad6f7a83f270)]
+[[TG💪+ @esim1088](https://t.me/s/esim1088) ![Image](https://i.postimg.cc/4NQfJmqS/Snipaste-2025-05-13-00-14-12.png)]

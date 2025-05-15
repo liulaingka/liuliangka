@@ -60,4 +60,4 @@
 
 好了，以上就是关于乌干达SIM卡购买的所有内容啦！希望这篇攻略能帮助到即将前往乌干达的朋友。记住，无论选择哪种方式，只要做好充分准备，就能轻松搞定通讯问题，尽情享受旅程中的每一刻！
 
-[TG💪+ @jx0703 ![Image](https://github.com/user-attachments/assets/dbca1d08-cadb-493c-b0ec-ad6f7a83f270)]
+[[TG💪+ @esim1088](https://t.me/s/esim1088) ![Image](https://i.postimg.cc/4NQfJmqS/Snipaste-2025-05-13-00-14-12.png)]

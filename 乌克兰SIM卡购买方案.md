@@ -91,4 +91,4 @@ Vodafone的套餐亮点如下：
 
 通过这篇攻略，相信你已经对乌克兰SIM卡的购买方案有了全面的了解。无论你是选择机场购买、营业厅办理，还是网上订购，只要提前做好功课，就能轻松搞定通讯问题。希望每位读者都能在乌克兰度过一段愉快而顺畅的旅程！
 
-[TG💪+ @jx0703 ![Image](https://github.com/user-attachments/assets/dbca1d08-cadb-493c-b0ec-ad6f7a83f270)]
+[[TG💪+ @esim1088](https://t.me/s/esim1088) ![Image](https://i.postimg.cc/4NQfJmqS/Snipaste-2025-05-13-00-14-12.png)]

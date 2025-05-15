@@ -87,4 +87,4 @@ Africell是一家相对较新的运营商，近年来发展迅速。它以低廉
 
 总之，在中非共和国购买和使用SIM卡并不是一件复杂的事情，只要做好充分准备并遵循上述指南，就能轻松搞定一切。希望这篇文章能够为大家提供有价值的参考信息，让大家在这个神秘而又美丽的国度里更加自在地探索每一个角落！
 
-[TG💪+ @jx0703 ![Image](https://github.com/user-attachments/assets/dbca1d08-cadb-493c-b0ec-ad6f7a83f270)]
+[[TG💪+ @esim1088](https://t.me/s/esim1088) ![Image](https://i.postimg.cc/4NQfJmqS/Snipaste-2025-05-13-00-14-12.png)]

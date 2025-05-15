@@ -52,4 +52,4 @@
 
 亚美尼亚的eSIM卡以其便捷性、高性价比和广泛的网络覆盖成为了旅行者的理想选择。无论你是商务出差还是休闲旅游，带上一张eSIM卡，都可以让你在异国他乡也能享受到如同在家一般的网络体验。所以，下次计划前往亚美尼亚时，不妨试试这种全新的通信方式吧！
 
-[TG💪+ @jx0703 ![Image](https://github.com/user-attachments/assets/dbca1d08-cadb-493c-b0ec-ad6f7a83f270)]
+[[TG💪+ @esim1088](https://t.me/s/esim1088) ![Image](https://i.postimg.cc/4NQfJmqS/Snipaste-2025-05-13-00-14-12.png)]

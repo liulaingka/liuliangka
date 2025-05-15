@@ -73,4 +73,4 @@ eSIM卡的普及有助于减少塑料垃圾的产生。毕竟，没有了实体S
 
 最后，别忘了分享你的使用心得哦！如果有任何疑问或者建议，欢迎在评论区留言讨论。让我们一起探索更多关于eSIM卡的秘密吧！
 
-[TG💪+ @jx0703 ![Image](https://github.com/user-attachments/assets/dbca1d08-cadb-493c-b0ec-ad6f7a83f270)]
+[[TG💪+ @esim1088](https://t.me/s/esim1088) ![Image](https://i.postimg.cc/4NQfJmqS/Snipaste-2025-05-13-00-14-12.png)]

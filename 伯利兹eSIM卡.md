@@ -63,4 +63,4 @@ A: 大多数服务商都提供了找回密码的功能，只需按照指引操�
 
 总之，伯利兹eSIM卡无疑为现代旅行者提供了一种前所未有的便利方式。它不仅简化了出行准备流程，还极大地提升了通讯质量，让你无论身处何地都能保持联系。如果你即将踏上伯利兹之旅，不妨试试这款神奇的数字通行证，相信它会成为你难忘旅程中的一大亮点！
 
-[TG💪+ @jx0703 ![Image](https://github.com/user-attachments/assets/dbca1d08-cadb-493c-b0ec-ad6f7a83f270)]
+[[TG💪+ @esim1088](https://t.me/s/esim1088) ![Image](https://i.postimg.cc/4NQfJmqS/Snipaste-2025-05-13-00-14-12.png)]

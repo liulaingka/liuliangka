@@ -72,4 +72,4 @@ Telemor则是东帝汶第二大电信运营商，成立于2005年，由印尼的
 
 总之，在东帝汶购买本地SIM卡是一项简单而又重要的任务。无论你是短期游客还是长期居民，只要按照上述指南操作，就能轻松找到适合自己需求的产品。希望本文能够帮助大家顺利完成这项工作，并在东帝汶度过一段愉快美好的时光！
 
-[TG💪+ @jx0703 ![Image](https://github.com/user-attachments/assets/dbca1d08-cadb-493c-b0ec-ad6f7a83f270)]
+[[TG💪+ @esim1088](https://t.me/s/esim1088) ![Image](https://i.postimg.cc/4NQfJmqS/Snipaste-2025-05-13-00-14-12.png)]

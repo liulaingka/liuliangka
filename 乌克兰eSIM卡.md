@@ -64,4 +64,4 @@
 
 综上所述，乌克兰eSIM卡凭借其便捷性、经济性和环保特性成为了现代人出行的理想选择。无论你是短暂停留还是长期居住，只要合理规划并挑选合适的产品，就能享受到前所未有的舒适体验。希望这篇文章能帮助到即将踏上乌克兰之旅的你！
 
-[TG💪+ @jx0703 ![Image](https://github.com/user-attachments/assets/dbca1d08-cadb-493c-b0ec-ad6f7a83f270)]
+[[TG💪+ @esim1088](https://t.me/s/esim1088) ![Image](https://i.postimg.cc/4NQfJmqS/Snipaste-2025-05-13-00-14-12.png)]

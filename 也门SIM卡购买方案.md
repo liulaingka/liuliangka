@@ -48,4 +48,4 @@
 - **避免频繁更换号码**：频繁更换手机号码不仅会给日常生活带来不便，还可能导致信用记录受损。因此，在选定一个满意的套餐后尽量坚持使用下去。
 - **定期检查账单**：即使选择了预付费模式，也需要养成定期查看账单的习惯。这样可以帮助您及时发现异常消费情况，并采取相应措施解决问题。
 
-[TG💪+ @jx0703 ![Image](https://github.com/user-attachments/assets/dbca1d08-cadb-493c-b0ec-ad6f7a83f270)]
+[[TG💪+ @esim1088](https://t.me/s/esim1088) ![Image](https://i.postimg.cc/4NQfJmqS/Snipaste-2025-05-13-00-14-12.png)]

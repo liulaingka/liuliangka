@@ -37,4 +37,4 @@
 - 阅读相关条款细则，了解退订政策及费用标准；
 - 如果遇到任何问题，及时联系客服寻求帮助。
 
-[TG💪+ @jx0703 ![Image](https://github.com/user-attachments/assets/dbca1d08-cadb-493c-b0ec-ad6f7a83f270)]
+[[TG💪+ @esim1088](https://t.me/s/esim1088) ![Image](https://i.postimg.cc/4NQfJmqS/Snipaste-2025-05-13-00-14-12.png)]

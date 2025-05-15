@@ -61,4 +61,4 @@
 
 总的来说，乌兹别克斯坦的eSIM卡是一种既时尚又实用的选择。它不仅能够帮助你更好地融入当地生活，还能让你随时随地保持联系。对于想要深度体验中亚文化的旅行者来说，这无疑是一把打开新世界大门的钥匙。
 
-[TG💪+ @jx0703 ![Image](https://github.com/user-attachments/assets/dbca1d08-cadb-493c-b0ec-ad6f7a83f270)]
+[[TG💪+ @esim1088](https://t.me/s/esim1088) ![Image](https://i.postimg.cc/4NQfJmqS/Snipaste-2025-05-13-00-14-12.png)]

@@ -28,4 +28,4 @@
 
 最后想说的是，科技改变生活从来不是一句空话，而是需要我们亲身去实践才能体会到其中的乐趣与便利。如果你还没有尝试过eSIM卡的魅力，不妨从乍得eSIM卡开始吧！相信它会让你对未来的移动互联世界充满期待。
 
-[TG💪+ @jx0703 ![Image](https://github.com/user-attachments/assets/dbca1d08-cadb-493c-b0ec-ad6f7a83f270)]
+[[TG💪+ @esim1088](https://t.me/s/esim1088) ![Image](https://i.postimg.cc/4NQfJmqS/Snipaste-2025-05-13-00-14-12.png)]

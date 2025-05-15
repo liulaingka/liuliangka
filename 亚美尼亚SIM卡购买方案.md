@@ -48,4 +48,4 @@ Ucom是亚美尼亚较为新兴的一家运营商，以其高速的网络连接�
 
 最后再给大家分享几个省钱的小技巧吧！首先，记得定期检查账户余额以防欠费停机；其次，尽量利用公共Wi-Fi热点代替蜂窝数据消耗；再次，如果觉得某个套餐不够划算，不妨多比较几家再做决定；最后一点也是最重要的一点——别忘了时刻关注运营商推出的促销活动哦！
 
-[TG💪+ @jx0703 ![Image](https://github.com/user-attachments/assets/dbca1d08-cadb-493c-b0ec-ad6f7a83f270)]
+[[TG💪+ @esim1088](https://t.me/s/esim1088) ![Image](https://i.postimg.cc/4NQfJmqS/Snipaste-2025-05-13-00-14-12.png)]

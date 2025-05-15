@@ -81,4 +81,4 @@ Telia是丹麦第三大运营商，以快速稳定的网络著称。如果你特
 
 最后提醒大家一句：在丹麦使用手机时也要注意安全问题，不要随意点击不明链接，保护好个人隐私哦！好了，今天的分享就到这里啦，希望对即将出发或正在旅途中的朋友们有所帮助。
 
-[TG💪+ @jx0703 ![Image](https://github.com/user-attachments/assets/dbca1d08-cadb-493c-b0ec-ad6f7a83f270)]
+[[TG💪+ @esim1088](https://t.me/s/esim1088) ![Image](https://i.postimg.cc/4NQfJmqS/Snipaste-2025-05-13-00-14-12.png)]
